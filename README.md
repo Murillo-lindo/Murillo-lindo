@@ -9,3 +9,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: em sbc
 - 😄 Pronouns: ele dele
 - ⚡ Fun fact: jogo bola, sei apresentar, sou educado, sei colaborar, nao falo muito em ambiente de trabalho, etc
+https://tenor.com/pt-BR/view/yago-pikachu-gif-9736902240645434005
