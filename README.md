@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 💬 pode me mandar g-mails
 - 📫 How to reach me: em sbc
 - 😄 Pronouns: ele dele
-- ⚡ Fun fact: jogo bola, sei apresentar, sou educado, sei colaborar, nao falo muito em ambiente de trabalho, etc
+- ⚡ Fun fact: jogo bola, sei apresentar, sei fazer contas de mais e de menos, de divider,torço para o melhor time do brasil, nao sou gay, sou educado, sei colaborar, nao falo muito em ambiente de trabalho, etc
 https://tenor.com/pt-BR/view/yago-pikachu-gif-9736902240645434005
